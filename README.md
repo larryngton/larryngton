@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @larryngton
+- 👀 I’m interested in finding someone who cares
+- 🌱 I’m currently learning nothing
+- 📫 How to reach me KenCqrson on dc
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: im asian
